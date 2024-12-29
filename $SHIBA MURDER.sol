@@ -15,7 +15,7 @@
                      | | 
                      |_|
 
-   $SHIBA MURDER CREATED BY "GYNKZ"
+   $SHIBA MURDER CREATED BY "GYNKZ Мартин Генадиев Димитров"
 
 LET'S MAKE 1000007777x 
 
